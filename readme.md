@@ -12,3 +12,4 @@
 ## Interests
 Manga Anime addict !
 ![Manga Addict](https://media1.tenor.com/m/kaRCm9ELxKgAAAAC/menhera-chan-chibi.gif)
+![Manga Addict](https://media.tenor.com/iuzh8x_ifkqaaaaj/apple-deathnote.gif)
