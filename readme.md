@@ -1,4 +1,4 @@
-## Hello my name : Komtsu 👋🏽👋🏽👋🏽👋🏽👋🏽
+## Hello my is name : Komatsu 👋🏽👋🏽👋🏽👋🏽👋🏽
 
 ## dev skills :
 
@@ -10,5 +10,5 @@
 
 
 ## Interests
-Manga Anime addict
+Manga Anime addict !
 ![Manga Addict](https://media1.tenor.com/m/kaRCm9ELxKgAAAAC/menhera-chan-chibi.gif)
